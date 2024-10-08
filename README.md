@@ -1,0 +1,3 @@
+- 👋 Hi, I’m MR_A
+- 📫 How to reach me.. you cant actualy
+- ⚡ Fun fact: tea
